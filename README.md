@@ -1,3 +1,5 @@
+### Currently not available in Playstore ###
+
 
 Privacy Policy
 Aswanath C K built the Money Assistant: Budget Tracer app as a Free app. This SERVICE is provided by Aswanath C K at no cost and is intended for use as is.
